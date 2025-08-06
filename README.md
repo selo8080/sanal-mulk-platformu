@@ -1,0 +1,2 @@
+# sanal-mulk-platformu
+vorrecore
